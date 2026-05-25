@@ -1,1 +1,1 @@
-Victor Gabriel Arvellos, Ana Clara Kajita das Neves   3ºB
+Victor Gabriel Arvellos, Ana Clara Kajita, Miriana Martins das Neves   3ºB
